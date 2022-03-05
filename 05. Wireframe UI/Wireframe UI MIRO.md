@@ -1,0 +1,1 @@
+Link de practica wireframe UX en miro: https://miro.com/app/board/uXjVOHqafcg=/
